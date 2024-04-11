@@ -8,3 +8,6 @@ and I like 3D modeling, i am trying to learn it rn
 I just want to know what can i do to output 3D modeling and CS
 but I haven't really learned but on both
 I'm so frustrated rn ahhhhhh
+And I don't really know how to use this
+someone teach me plzzzz
+i only know that i can ask questions here...
